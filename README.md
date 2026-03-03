@@ -1,1 +1,1 @@
-![gif](https://tenor.com/pt-BR/view/chromedino-gif-10284748528352541933)
+![gif](https://media1.tenor.com/m/jrrES6ysvO0AAAAd/chromedino.gif)
